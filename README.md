@@ -3,8 +3,11 @@ Vejaeke
 GENERAL:
 ____________________________________________________________________________________________________________________________________________________________________
 Discord: @vejaeke
+
 Location: Poland
+
 Languages: English, Polish 
+
 Email: tadeusiak.business@gmail.com
 
 CONTRIBUTIONS:
